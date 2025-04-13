@@ -12,9 +12,9 @@ He was quite literally jumping up and down in his rage.
 
 1. **按照字面意思**
 
-          in a way that uses the ordinary and usually meaning of a word
+in a way that uses the ordinary and usually meaning of a word
 
-       He took her comments literally 他按字面意思理解她的评论
+ He took her comments literally 他按字面意思理解她的评论
 
 1. **确切地 （in a completely accurate way）**
 
