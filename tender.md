@@ -6,4 +6,4 @@
 - *v.***<正式>提出，提供；投标；付钱，偿还；出价购买（股票等）；使变脆弱；<古>温柔地对待**
 - *n.***投标，投标书；<英>（期货交易中的）交割意向通知书；（尤指挂在火车头后的）煤水车；（在大船和口岸之间载运人或货物的）供应船，补给船；（装有特别设备的）辅助救火车；服务车，辅助车辆；照料人，照管人；<美，非正式>（通常裹有面包屑的）炸鸡块**
 
-Manager to inform Jane as soon as staff tender resignation or applies for leave of absence.
+Manager to inform Jane as soon as staff *tender resignation* or applies for leave of absence.
