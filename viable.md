@@ -1,0 +1,1 @@
+## viable.  please document the constraint why file transfer via IBM S3 is not a viable option.
