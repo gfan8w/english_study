@@ -17,14 +17,12 @@ experiencing a "second childhood(老年糊涂,第二童年,老年智力衰退期
 
 
 
-The word was **thrust**(/θrʌst/v.猛推，猛塞；刺，扎；（人）推进，挤过；上伸，伸出) **back**(击退：强力推回或击退某物或某人。) into the modern spotlight 
-
+The word was **thrust** **back**(击退：强力推回或击退某物或某人。) into the modern spotlight 
 in 2017 when North Korean leader Ki J Un used it in 
-
 a televised statement directed at US D Trp. The English translation 
-
 from North Korean state media used the term as an equivalent to an "old lunatic".
 
+**thrust**(/θrʌst/v.猛推，猛塞；刺，扎；（人）推进，挤过；上伸，伸出) **back**(击退：强力推回或击退某物或某人。)
 
 
 On Friday the English-speaking world was **startle**d(/ˈstɑːt(ə)l/v.使吓一跳，使惊奇) to find itself suddenly reacquainted with 
